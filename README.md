@@ -1,1 +1,0 @@
-# urigat.github.io
